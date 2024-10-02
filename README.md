@@ -1,0 +1,2 @@
+-eu sou rafael
+-egosto de fazer varias coias tipo jogando bola, queimada e pibolim
